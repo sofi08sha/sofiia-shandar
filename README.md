@@ -1,2 +1,8 @@
 # sofiia-shandar
-My personal page
+
+
+
+
+
+Hi, my name is Sofiia Shandar and this is my personal page
+
